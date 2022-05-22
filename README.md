@@ -10,3 +10,5 @@ Our specialities include guacamole timbale which comes with chipotle black beans
 If you are looking forward for a lifetime gourmet experience, you are at the right place.
 
 Come on in and make your reservation.
+
+Enjoy!
